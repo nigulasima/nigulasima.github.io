@@ -1,3 +1,0 @@
-## Welcome to NigulasiMa Game
-
-to be continued ...
